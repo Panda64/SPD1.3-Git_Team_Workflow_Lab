@@ -21,7 +21,7 @@ He stuck his head in the door, the color of the foliage was intense greens, brow
 The smell of the of the zoo was intense and alive.
 He took a tentative step through the door and followed the stone path, overgrown with giant ferns.
 
-Joe met the Unicorn King who granted him magic powers. Joe eventually learned how to harness the true prowess of his powers and ended up becoming his nation's own superhero!
+Joe met the Unicorn King who granted him magic powers. Joe eventually learned how to harness the true prowess of his powers and ended up becoming his nation's own superhero! And then, all of the sudden, a wild zookeeper appears out of nowhere, sweeping the Unicorn King off of his feet. Joe watched in awe as they bothed disapeared off into the distance.
 The end.
 
 ## Cast
